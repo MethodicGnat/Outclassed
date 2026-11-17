@@ -1,0 +1,3 @@
+Player: A
+Fastest victory time: 27
+Winning fashion: Sweep
