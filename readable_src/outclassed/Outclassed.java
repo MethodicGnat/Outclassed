@@ -6,7 +6,7 @@ Purpose: run the Outclassed game loop
 
 I have only used resources indicated that are allowable.
 The work submitted is my/our, and only my/our work.
-Signature: Your Name and your partner’s name, if there is one
+Signature: Analeigh Nwokolo
 Date: 11/17/2026
 
 Mrs. Keller is the best teacher :>
