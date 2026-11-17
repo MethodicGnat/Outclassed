@@ -8,6 +8,8 @@ I have only used resources indicated that are allowable.
 The work submitted is my/our, and only my/our work.
 Signature: Your Name and your partner’s name, if there is one
 Date: 11/17/2026
+
+Mrs. Keller is the best teacher :>
  */
 
 
